@@ -9,7 +9,7 @@ I build production-ready software and automated systems end-to-end, leveraging A
 #### Contact
 
 - **Email:** bekutan05@gmail.com
-- **Telegram / Phone:** +7 777 269 09 09
+- **Telegram** @sauytbek_beksultan
 <!---
 BekaKOKE/BekaKOKE is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
